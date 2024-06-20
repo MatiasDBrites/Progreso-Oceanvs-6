@@ -8,4 +8,7 @@ Tarea N° 6 Hito Estandarizacion
 6.3 Manual de Operacion Area Cocina
 6.4 Costos del Menu
 
-Recien se esta arrancando con esto todavia no hay resultados.
+6.1 Ya se sacaron las fotos del desayuno, esperando retroalimentación para hacer los cambios correspondientes y volver a sacar fotos
+
+primera rueda de fotos
+https://photos.app.goo.gl/vUbaM5m2XkpRmgKFA
