@@ -12,3 +12,8 @@ Tarea N° 6 Hito Estandarizacion
 
 primera rueda de fotos
 https://photos.app.goo.gl/vUbaM5m2XkpRmgKFA
+
+Inventario de loza
+[![inventario-loza.jpg](https://i.postimg.cc/nVYjbNgN/inventario-loza.jpg)](https://postimg.cc/PNJr1VtM)
+
+
